@@ -17,10 +17,21 @@ When there is the odd position that caters to my "semi-retired" state of mind an
 
 I am now equally interested in other non-technical experiences, ranging from pickleball, tennis, bicycle riding, to learning pottery and other languages.
 
-## Logging hours
+## Pondering/Reflection on the software engineering field/career
 
-If the job requires "punching a clock" and logging the hours of work as I have done many time in my life before, I am most certainly not interested.
+I have had friends / acquaintances in many fields outside of technology.
 
-If I had to place a duration / quantity to that, it would be the balance of time left over after family, friends, sleep and then the remainder, work.
+Some of their professions/careers include doctors, lawyers, professors, teachers, home builders, automobile mechanics, electricians, plumbers/HVAC specialists, real estate agents.  
 
-The 8-hour day is even more commitment than I plan to spend at this point.
+In almost all cases, there is a general disciplinary path, with a premium on experience and the master-apprentice relationship.
+
+For the lawyer, that may be evidenced by achieving a coveted "partner" level in a firm.
+
+For a doctor, it may be evidenced by achieving consultations with insurers, participation on review boards, etc.
+
+For a professor, it may be getting published and achieving authority status in the area of specialization.
+
+For teachers, especially with the public institutions, it may be evidenced as achieving a set of certifications with corresponding incentives.
+
+For the trades, include plumbers, electricians, etc, this can be evidenced by owning/running a company for the respective trade service. 
+
